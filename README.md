@@ -1,0 +1,1 @@
+# C-o-n-d-i-c-i-o-n-e-s-p-a-r-a-p-l-a-n-t-a-c-i-o-n-e-s-a-g-r-c-o-l-a-s
